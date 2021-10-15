@@ -1,6 +1,8 @@
 # Yo yo
 
-Trying to be free.
+Trying to be free. Many say it's not possible, but we'll see.
+
+`work is fine, instructed work is evil`
 
 My blogs and other shit: https://markomackic.github.io/
 
@@ -8,7 +10,11 @@ Blogging was never my thing, so there is currently nothing on this page, but mig
 
 I have a broad set of interests:
 
-* Playing guitar
+* Music
+  ~ life is pointless without it. 
+  * Playing guitar
+* Drinking
+  * Mostly coffee and sometimes alcohol
 * Nature
   ~ dearest to my heart
   * Skiing
