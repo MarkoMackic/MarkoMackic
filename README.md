@@ -21,6 +21,9 @@ I have a broad set of interests:
   * Swiming ( I Really REally love water ) 
   * Hiking
   * Or just sitting under the tree and waiting for some apple to fall . 
+* Observatory learning on these:
+  * Psychology 
+  * Philosophy
 * Computer science ( programming and other shit, some of this I've done, some of these I'm exploring ) 
   * Web and shit
   * Runtimes 
