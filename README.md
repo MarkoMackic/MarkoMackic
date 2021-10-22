@@ -6,13 +6,13 @@ Trying to be free. Many say it's not possible, but we'll see.
 
 My blogs and other shit: https://markomackic.github.io/
 
-Blogging was never my thing, so there is currently nothing on this page, but might be in the future ( 15.10.2021 ) 
+Blogging was never my thing, but might be in the future ( 22.10.2021 ) 
 
 I have a broad set of interests:
 
 * Music
   ~ life is pointless without it. 
-  * Playing guitar
+  * Playing guitar ( not so good, but enough for my soul ) 
 * Drinking
   * Mostly coffee and sometimes alcohol
 * Nature
